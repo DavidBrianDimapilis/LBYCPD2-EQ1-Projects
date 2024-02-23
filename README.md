@@ -1,1 +1,1 @@
-LBYCPD2-Activities and Projects
+LBYCPD2-Activites & Projects
